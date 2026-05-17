@@ -2,6 +2,9 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-17 17:00 (IR Time)
+- 🗜️ [How to Fix Wild Rift Login Error 100_ Solved _ Android _ iOS _ 2024 Update.zip](https://github.com/darktime77/sandbox/raw/main/dl/How%20to%20Fix%20Wild%20Rift%20Login%20Error%20100_%20Solved%20_%20Android%20_%20iOS%20_%202024%20Update.zip) `48.92 MB`
+
 ### 📅 2026-05-16 19:55 (IR Time)
 - 🗜️ [آموزش ساخت فیلترشکن رایگان و شخصی به 2 روش با نت ملی_.zip](https://github.com/darktime77/sandbox/raw/main/dl/%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D8%B3%D8%A7%D8%AE%D8%AA%20%D9%81%DB%8C%D9%84%D8%AA%D8%B1%D8%B4%DA%A9%D9%86%20%D8%B1%D8%A7%DB%8C%DA%AF%D8%A7%D9%86%20%D9%88%20%D8%B4%D8%AE%D8%B5%DB%8C%20%D8%A8%D9%87%202%20%D8%B1%D9%88%D8%B4%20%D8%A8%D8%A7%20%D9%86%D8%AA%20%D9%85%D9%84%DB%8C_.zip) `45.56 MB`
 
