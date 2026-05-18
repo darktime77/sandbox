@@ -2,6 +2,10 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-18 05:35 (IR Time)
+- 📥 [17مذاکره_تمرینی_شصت_ثانیه_وقت_داری_یا_اون_می_میره.z01](https://github.com/darktime77/sandbox/raw/main/dl/17%D9%85%D8%B0%D8%A7%DA%A9%D8%B1%D9%87_%D8%AA%D9%85%D8%B1%DB%8C%D9%86%DB%8C_%D8%B4%D8%B5%D8%AA_%D8%AB%D8%A7%D9%86%DB%8C%D9%87_%D9%88%D9%82%D8%AA_%D8%AF%D8%A7%D8%B1%DB%8C_%DB%8C%D8%A7_%D8%A7%D9%88%D9%86_%D9%85%DB%8C_%D9%85%DB%8C%D8%B1%D9%87.z01) `95.00 MB`
+- 🗜️ [17مذاکره_تمرینی_شصت_ثانیه_وقت_داری_یا_اون_می_میره.zip](https://github.com/darktime77/sandbox/raw/main/dl/17%D9%85%D8%B0%D8%A7%DA%A9%D8%B1%D9%87_%D8%AA%D9%85%D8%B1%DB%8C%D9%86%DB%8C_%D8%B4%D8%B5%D8%AA_%D8%AB%D8%A7%D9%86%DB%8C%D9%87_%D9%88%D9%82%D8%AA_%D8%AF%D8%A7%D8%B1%DB%8C_%DB%8C%D8%A7_%D8%A7%D9%88%D9%86_%D9%85%DB%8C_%D9%85%DB%8C%D8%B1%D9%87.zip) `75.10 MB`
+
 ### 📅 2026-05-18 05:34 (IR Time)
 - 📥 [16قوهای سیاه.z01](https://github.com/darktime77/sandbox/raw/main/dl/16%D9%82%D9%88%D9%87%D8%A7%DB%8C%20%D8%B3%DB%8C%D8%A7%D9%87.z01) `95.00 MB`
 - 📥 [16قوهای سیاه.z02](https://github.com/darktime77/sandbox/raw/main/dl/16%D9%82%D9%88%D9%87%D8%A7%DB%8C%20%D8%B3%DB%8C%D8%A7%D9%87.z02) `95.00 MB`
