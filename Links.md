@@ -2,6 +2,10 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-18 05:32 (IR Time)
+- 📥 [14چونه زدن.z01](https://github.com/darktime77/sandbox/raw/main/dl/14%DA%86%D9%88%D9%86%D9%87%20%D8%B2%D8%AF%D9%86.z01) `95.00 MB`
+- 🗜️ [14چونه زدن.zip](https://github.com/darktime77/sandbox/raw/main/dl/14%DA%86%D9%88%D9%86%D9%87%20%D8%B2%D8%AF%D9%86.zip) `28.16 MB`
+
 ### 📅 2026-05-18 05:31 (IR Time)
 - 📥 [مذاکره تمرینی رقیب12.z01](https://github.com/darktime77/sandbox/raw/main/dl/%D9%85%D8%B0%D8%A7%DA%A9%D8%B1%D9%87%20%D8%AA%D9%85%D8%B1%DB%8C%D9%86%DB%8C%20%D8%B1%D9%82%DB%8C%D8%A812.z01) `95.00 MB`
 - 🗜️ [مذاکره تمرینی رقیب12.zip](https://github.com/darktime77/sandbox/raw/main/dl/%D9%85%D8%B0%D8%A7%DA%A9%D8%B1%D9%87%20%D8%AA%D9%85%D8%B1%DB%8C%D9%86%DB%8C%20%D8%B1%D9%82%DB%8C%D8%A812.zip) `26.06 MB`
