@@ -2,6 +2,10 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-18 05:31 (IR Time)
+- 📥 [مذاکره تمرینی رقیب12.z01](https://github.com/darktime77/sandbox/raw/main/dl/%D9%85%D8%B0%D8%A7%DA%A9%D8%B1%D9%87%20%D8%AA%D9%85%D8%B1%DB%8C%D9%86%DB%8C%20%D8%B1%D9%82%DB%8C%D8%A812.z01) `95.00 MB`
+- 🗜️ [مذاکره تمرینی رقیب12.zip](https://github.com/darktime77/sandbox/raw/main/dl/%D9%85%D8%B0%D8%A7%DA%A9%D8%B1%D9%87%20%D8%AA%D9%85%D8%B1%DB%8C%D9%86%DB%8C%20%D8%B1%D9%82%DB%8C%D8%A812.zip) `26.06 MB`
+
 ### 📅 2026-05-18 05:30 (IR Time)
 - 📥 [11ارزش کلمه _نه.z01](https://github.com/darktime77/sandbox/raw/main/dl/11%D8%A7%D8%B1%D8%B2%D8%B4%20%DA%A9%D9%84%D9%85%D9%87%20_%D9%86%D9%87.z01) `95.00 MB`
 - 🗜️ [11ارزش کلمه _نه.zip](https://github.com/darktime77/sandbox/raw/main/dl/11%D8%A7%D8%B1%D8%B2%D8%B4%20%DA%A9%D9%84%D9%85%D9%87%20_%D9%86%D9%87.zip) `10.34 MB`
